@@ -27,7 +27,7 @@
 
 **DeviantArt**http://www.deviantart.com
 
-**花瓣**http：//huaban.com
+**花瓣**http://huaban.com
 
 #音乐&电影
 
