@@ -33,9 +33,9 @@
 
 **网易云音乐**http://music.163.com
 
-**spotify**http：//www.spotify.com
+**spotify**http://www.spotify.com
 
-**酷我音乐**http：//www.kuwo.cn
+**酷我音乐**http://www.kuwo.cn
 
 **5sing**http://5sing.kugou.com
 
