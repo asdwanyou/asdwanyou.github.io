@@ -7,4 +7,4 @@
 
 
 
-![image](https://github.com/asdwanyou/photo/blob/master/raw/master/images-folder/yeqi.png）
+![image](https://github.com/asdwanyou/photo/blob/master/raw/master/images-folder/yeqi.png)
