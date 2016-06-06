@@ -7,7 +7,7 @@
 
 
 
-![image](https://github.com/asdwanyou/photo/blob/master/raw/master/images-folder/yeqi.png)
+
 
 #动漫&图片
 
